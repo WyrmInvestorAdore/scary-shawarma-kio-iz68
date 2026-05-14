@@ -1,4 +1,4 @@
-#  
+#  Experience scary shawarma kiosk like never before with scary shawarma kiosk Script rare, the #1 Script. Includes teleport and invisibility for
 
 
 
